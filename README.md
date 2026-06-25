@@ -3,7 +3,6 @@
 0
 9
 
-xfokj g
 gn  g iohegplh
  uguihoign 
  ebj8d
