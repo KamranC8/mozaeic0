@@ -1,7 +1,7 @@
 5# kol00za
 
 
-gn  g ioh
+gn  g i
  uguihoign 
  ebj8
   hicfgke frsd loovb emccg g
