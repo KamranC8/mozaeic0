@@ -1,4 +1,4 @@
-5# kol00za
+5# kol00
 gn  g 
  uguihoign
  ebj8
