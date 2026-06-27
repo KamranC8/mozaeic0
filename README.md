@@ -1,6 +1,6 @@
 5# kol00
 gn  g 
- uguihoi
+ uguih
  eb
   hicfgke frsd loovb emcc
    mfngtfk.lrb .IEH, u
