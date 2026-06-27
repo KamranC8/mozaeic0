@@ -1,5 +1,5 @@
 5# kol00
-gn  g 
+gn  
  uguih
  eb
   hicfgke frsd loovb emcc
