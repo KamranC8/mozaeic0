@@ -1,6 +1,5 @@
 5# kol00za
 
-9
 
 gn  g iohpl
  uguihoign 
