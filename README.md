@@ -2,6 +2,5 @@
 gn  
  ugu
  eb
-  hicfgke frsd loovb em
-   mfngtfk.lrb .IEH
+  hicfgke frsd loovb e
    f nf
